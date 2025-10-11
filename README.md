@@ -1,7 +1,7 @@
 # jos
 
 
-
+If this is automatically translated ignore-copied form google translate
 
 Конечно, вот большая «текстовая масса» на русском языке (бессмысленная, но грамматически связная):
 
