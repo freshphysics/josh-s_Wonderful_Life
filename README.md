@@ -1,7 +1,6 @@
 # jos
 
-
-If this is automatically translated ignore-copied form google translate
+helo hguys i gOT SOMETHIGN VERY GIIDDDDD GUYS 
 
 Конечно, вот большая «текстовая масса» на русском языке (бессмысленная, но грамматически связная):
 
